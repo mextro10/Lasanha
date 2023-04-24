@@ -1,2 +1,0 @@
-# Lasanha
-minha atividade
